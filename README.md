@@ -1,4 +1,4 @@
-UFO, forget the moon, lets go beyond that!
+Forget the moon, lets go beyond that!
 =====================================
 
 What is UFO?
